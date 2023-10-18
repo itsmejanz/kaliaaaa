@@ -1,1 +1,1 @@
-# by ojan to cewe ku :)
+# by ojan for cewe ku :)
